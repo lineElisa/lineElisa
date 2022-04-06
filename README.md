@@ -1,0 +1,7 @@
+- Olá, sou @lineElisa
+- estou no colegio ivo leão
+- gosto de jogar, e fazer call com amigos
+- *************************************
+- Hi, I am @lineElisa
+- I'm at Ivo Leão college
+- I like to play and make calls whit frieds
